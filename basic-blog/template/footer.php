@@ -1,0 +1,1 @@
+Copyright &copy; 2018 | Team Berat (syuhbanul,dinsyam)
